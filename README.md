@@ -1,4 +1,4 @@
-# Hi there, I'm CJ McGlynn 👋
+# Hi there, I'm CJ-McG 👋
 
 Entrepreneur and Developer focused on building scalable digital solutions, SEO-driven platforms, and Web3 ecosystems.
 
